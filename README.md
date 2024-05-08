@@ -10,5 +10,5 @@ caso queira entrar em contato cmg:
 00001113722526sp@al.educacao.sp.gov.br
 
 
-![](https://tenor.com/pt-BR/view/tevzi-giorgi-tevzadze-bmw-drift-oom-gif-18452846)
+![](https://tenor.com/pt-BR/view/arab-cat-cat-arab-funny-arab-cat-cat-with-headcloth-arab-cat-sitting-funny-stare-gif-20144309)
 
